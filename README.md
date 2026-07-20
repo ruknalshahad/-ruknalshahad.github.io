@@ -1,2 +1,2 @@
 # -ruknalshahad.github.io
-Official service pages hub for Rukn Al Shahad — Dubai-based technical services company specializing in GRP lamination, PU injection waterproofing, crack treatment, epoxy flooring, and roof waterproofing across the UAE. Free site inspections available.
+GRP (Glass Reinforced Plastic) lamination creates a seamless, corrosion-resistant barrier for water tanks, rooftops, pipelines, and industrial surfaces exposed to constant moisture. Rukn Al Shahad provides this service across Dubai, with a free site inspection to assess the best approach.
